@@ -1,1 +1,1 @@
-# Ayr-k-Mat-4.-Hafta
+Ayrık Matematik Kümeler ödevimi tamamladım. 
